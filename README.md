@@ -3,7 +3,7 @@
 
 
 
-🏢 I work as a teacher in the area of ​​knowledge in Physical Education. 🎾⚽🚵 TRabalho como professora na área de conhecimento em Educação Física.
+🏢 I work as a teacher in the area of ​​knowledge in Physical Education. 🎾⚽🚵 Atuo como professora na área de conhecimento em Educação Física.
 
 📚 I'm currently taking courses, Computational Thinking is one of them, helping to improve my practices. Atualmente estou fazendo cursos, Pensamento Computacional, é um deles, servindo para aprimorar minhas práticas.
 
